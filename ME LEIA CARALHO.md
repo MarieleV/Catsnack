@@ -23,3 +23,7 @@ Só depois que você tiver >>>CERTEZA<<< de que você estiver editando o arquivo
 # COMO QUE EU SEI O QUE EU PRECISO FAZER NO TRABALHO?
 
 Vai ta no grupo do wpp o que cada um precisa fazer e o prazo que cada um tem, se no final do trabalho alguem tiver que fazer a parte de outro pq o amiguinho não fez, dedura mesmo q se foda
+
+# E SE EU NÃO SOUBER COMO FAZER?
+
+Manda msg pro Dereck ou pro Isaac, eles vão tentar te dar um norte
